@@ -1,1 +1,1 @@
-# ssamsamid.online/
+# http://ssamsamid.online/
