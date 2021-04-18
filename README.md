@@ -1,1 +1,1 @@
-# http://photography.ssamsamid.online/
+#ssamsamid.online/
